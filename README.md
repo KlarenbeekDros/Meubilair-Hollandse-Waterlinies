@@ -13,3 +13,31 @@ Ons doel is te komen tot een heldere identiteit en uitstraling gebaseerd op de c
 (https://www.ericklarenbeek.com/models/index.html)
 
 ![Image](https://user-images.githubusercontent.com/117828831/201355275-69bb22dc-4032-4aa5-a6a7-15a62210079e.jpg)
+
+---
+
+Om eenheid, rust en herkenbaarheid aan te brengen in
+de vele eigentijdse toevoegingen aan de Nieuwe
+Hollandse Waterlinie is er een catalogus ontwikkeld; het
+Handboek Meubilair Nieuwe Hollandse Waterlinie. Dit
+handboek bevat ontwerpen voor receatieve elementen,
+zoals bankjes, picknicksets, informatieborden, hekwerken en taludtrappen. Door eenheid in vormgeving, kleur
+en materiaalgebruik wordt verrommeling van de
+Waterlinie voorkomen en de herkenbaarheid versterkt.
+Het zijn eigentijdse ontwerpen, geïnspireerd op de
+historisch-militaire elementen van de Linie, passend in
+het Waterliniekarakter. Het handboek is uitgewerkt in
+bestekstekeningen voor de diverse onderdelen.
+Belangrijke kenmerken van het Liniemeubilair zijn
+soberheid, terughoudendheid en utilitaire bouw. De
+materialen zijn zwart metaal, inlands eiken en beton. Het
+kleurenpalet bestaat uit lichtgrijs, eikenhoutkleur en
+zwart. Kenmerkend is de introductie van het zwart stalen
+W-profiel. Deze tot een W gevouwen metalen paal
+versterkt de eigenheid van de Linie en kan op diverse
+manieren worden ingezet, zoals bij de hekwerken op
+forten, als afrastering bij de batterijen en als drager van
+informatiebordjes.
+Het Handboek Liniemeubilair wordt continu aangescherpt
+met praktijkervaringen. De website Hollandse Waterlinie
+geeft de actuele stand van zaken weer.
