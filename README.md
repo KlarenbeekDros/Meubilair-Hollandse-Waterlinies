@@ -9,7 +9,7 @@ Het meubilair is speciaal ontwikkeld voor de gebruiker van dit spannende gebied 
 
 De herinterpretatie van het meubilair, in opdracht van Provincie Utrecht, is voortgekomen en een vervolg van het Liniemeubilair voor de Nieuwe Hollandse Waterlinie zoals vanaf 2010 in opdracht van de Provincie Gelderland, Ministerie, en verscheidene gemeenten is geplaastst en te vinden in gebied van de Nieuwe Hollandse Waterlinie. Hier vindt u informatie, gebruikhandleidingen, bouwtekeningen, digitale files en producenten van het Liniemeubilair. Dit open source platform biedt handvatten aan ondernemers in het gebied van de Nieuwe Hollandse Waterlinie. We bieden ontwerpen ter ondersteuning van de inrichting van forten en werken, informatievoorziening, banken, afvalbakken, hekwerken en verlichting. 
 
-Ons doel is te komen tot een heldere identiteit en uitstraling gebaseerd op de cultuur historische waarden van de Nieuwe Hollandse Waterlinie, waar alle uiteenlopende betrokken partijen, ondernemers en gebruikers van het gebied vrij gebruik van kunnen maken en toepassen.
+Ons doel is te komen tot een heldere identiteit en uitstraling gebaseerd op de cultuurhistorische waarden van de Nieuwe Hollandse Waterlinie, waar alle uiteenlopende betrokken partijen, ondernemers en gebruikers van het gebied vrij gebruik van kunnen maken en toepassen.
 
 (https://www.liniemeubilair.nl)
 
