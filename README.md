@@ -1,6 +1,6 @@
 # Meubilair Hollandse Waterlinies
 
-<i>Ga naar (https://www.liniemeubilair.nl) voor het nieuwste liniemebilair</i>
+<i>Ga naar https://www.liniemeubilair.nl voor het nieuwste liniemebilair</i>
 
 Dit platform is een digitaal handboek voor de toepassing van meubilair in de Hollandse Waterlinies; Een voor Nederlandse begrippen groots en complex militiar verdedigingssysteem, dat van grofweg Napoleon tot de Tweede Wereldoorlog dienst heeft gedaan en recentelijk de status Unesco Werelderfgoed heeft gekregen (https://www.unesco.nl/nl/erfgoed/hollandse-waterlinies-0, https://whc.unesco.org/en/list/759/). 
 
