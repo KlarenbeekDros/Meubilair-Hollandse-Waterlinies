@@ -11,7 +11,7 @@ De herinterpretatie van het meubilair, in opdracht van Provincie Utrecht, is voo
 
 Ons doel is te komen tot een heldere identiteit en uitstraling gebaseerd op de cultuurhistorische waarden van de Nieuwe Hollandse Waterlinie, waar alle uiteenlopende betrokken partijen, ondernemers en gebruikers van het gebied gebruik van kunnen maken. 
 
-Heeft u interesse in één van de ontwerpen, neem dan contact met ons op; info@liniemeubilair.nl
+Heeft u interesse in één van de ontwerpen:
 
 (https://www.liniemeubilair.nl)
 
